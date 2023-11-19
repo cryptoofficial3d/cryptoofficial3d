@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate **with other content creators !!**
 
-- 💬 Ask me about **Web Development !!**
+- 💬 Ask me about **Web2 & web3 Development !!**
 
 - 📫 How to reach me **abolfazlesteki.linkedin@gmail.com**
 
